@@ -3,7 +3,7 @@
 
 - I’m currently learning **A.I (Open Cv),Design of web layout**
 
-- Ask me about **Graphic Designer**
+- Ask me about **Graphic Designing**
 
 - How to reach me **smzawarasif@gmail.com**
 
