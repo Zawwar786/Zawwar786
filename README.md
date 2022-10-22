@@ -9,7 +9,7 @@
 
 - Fun fact **Drifting**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/syed-muhammad-zawwar-asif-1517951a1/</h3>
 <p align="left">
 </p>
 
